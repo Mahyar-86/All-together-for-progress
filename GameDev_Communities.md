@@ -56,7 +56,7 @@ https://discord.gg/AEUNf63gxh
 
 https://discord.gg/jDguzJa5cb
 
-## Goggleplay + Admobe
+## Googleplay + Admobe
 https://t.me/Android_income
 
 https://t.me/admobandgoogle
