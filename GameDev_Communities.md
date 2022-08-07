@@ -55,16 +55,15 @@ https://t.me/IR_GRS
 https://discord.gg/AEUNf63gxh
 
 https://discord.gg/jDguzJa5cb
-## دیگر کامیونیتی ها :
 
-### Goggleplay + Admobe
+## Goggleplay + Admobe
 https://t.me/Android_income
 
 https://t.me/admobandgoogle
 
 https://t.me/playadmob
 
-### آگهی :
+## آگهی :
 https://t.me/GDJobFair
 
 https://t.me/CG_Projects
@@ -73,7 +72,7 @@ https://t.me/JGameMakers_CGH
 
 https://t.me/TeamForGame
 
-### Others :
+## Others :
 https://t.me/GDEvents
 
 https://t.me/GDTestLab
