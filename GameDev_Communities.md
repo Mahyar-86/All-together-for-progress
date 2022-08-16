@@ -38,6 +38,7 @@ https://t.me/GameMakerGroup
 https://t.me/joinchat/BkTgV0X1SU9oZD3KQeghhQhttps://t.me/joinchat/BkTgV0X1SU9oZD3KQeghhQ
 
 https://t.me/gamepersian2021
+
 https://t.me/indie_Game
 
 https://t.me/GameDevelopersGP
@@ -55,6 +56,8 @@ https://t.me/IR_GRS
 https://discord.gg/AEUNf63gxh
 
 https://discord.gg/jDguzJa5cb
+
+https://askgame.ir/
 
 ## Googleplay + Admobe
 https://t.me/Android_income
