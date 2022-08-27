@@ -75,6 +75,8 @@ https://t.me/JGameMakers_CGH
 
 https://t.me/TeamForGame
 
+https://t.me/cgcareers
+
 ## Others :
 https://t.me/GDEvents
 
