@@ -59,7 +59,7 @@ https://discord.gg/jDguzJa5cb
 
 https://askgame.ir/
 
-## Googleplay + Admobe
+## Googleplay + Admob
 https://t.me/Android_income
 
 https://t.me/admobandgoogle
