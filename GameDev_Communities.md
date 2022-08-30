@@ -66,6 +66,8 @@ https://t.me/admobandgoogle
 
 https://t.me/playadmob
 
+https://t.me/iran_admob
+
 ## آگهی :
 https://t.me/GDJobFair
 
